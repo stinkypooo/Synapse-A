@@ -1,0 +1,1 @@
+if your reading this, then be careful, people may steal a copy of my exploit and make it have malicious codes in it, dont trust people who put malicious codes into the copy of my exploit, by the way, have fun using the exploit i made!
